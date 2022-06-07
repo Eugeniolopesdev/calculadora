@@ -4,4 +4,4 @@
 
 
 ### como funciona
- experiências acumuladas demonstram que o julgamento imparcial das eventualidades causa impacto indireto na reavaliação do investimento em reciclagem técnica.
+ experiências acumuladas demonstram que os julgamentos imparciais das eventualidades causa impacto indireto na reavaliação do investimento em reciclagem técnica.
