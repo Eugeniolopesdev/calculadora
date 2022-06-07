@@ -1,6 +1,6 @@
 # calculadora
 
----author:** Eugenio Lopes
+---author:** Eugenio Lopespacelli.lopes@hotmail.com
 
 
 ### como funciona
